@@ -22,3 +22,6 @@ instalado
 ![image](https://github.com/user-attachments/assets/3ab54d3a-d8eb-4c8b-90d6-41208041fc43)
 
 ![image](https://github.com/user-attachments/assets/3ef278fb-5d71-4c2c-a054-ec52d61e238a)
+
+
+![image](https://github.com/user-attachments/assets/4dc85ffb-ee17-4ab2-9291-ffb689e6348e)
