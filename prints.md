@@ -16,3 +16,7 @@ acabei e reinstalei
 ![image](https://github.com/user-attachments/assets/6555760f-1446-425f-b9e1-14210c754982)
 
 ![image](https://github.com/user-attachments/assets/6ef83f2a-b77b-4a06-8907-9c6514dbf71c)
+
+instalado
+
+![image](https://github.com/user-attachments/assets/3ab54d3a-d8eb-4c8b-90d6-41208041fc43)
